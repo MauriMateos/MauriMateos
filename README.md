@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on Junior backend projects
 - 📫 How to reach me:
  Instagram: @mauri_mateos
-| Email: mauriciomicaelmateos@gmail.com
+| LinkedIn: www.linkedin.com/in/mauriciomicaelmateos
 - ⚡ Fun fact: I am a member of @escuadronovejasnegras (ig) We do charitable activities 
 
 <!---
