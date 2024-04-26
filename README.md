@@ -5,7 +5,7 @@
 - 📫 How to reach me:
  Instagram: @mauri_mateos
 | LinkedIn: www.linkedin.com/in/mauriciomicaelmateos
-- ⚡ Fun fact: I am a member of @escuadronovejasnegras (ig) We do charitable activities 
+- ⚡ Fun fact: I am a member of @escuadronovejasnegras (Instagram). We do charitable activities 
 
 <!---
 MauriMateos/MauriMateos is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
